@@ -1,3 +1,3 @@
 # Simulation_of_reality
-# Рижаніна Каріна Олексіївна
-та блін що за дела
+Ryzhanina Karina Oleksiivna
+A student of the IM-22 group
